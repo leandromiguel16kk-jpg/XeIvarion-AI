@@ -1,2 +1,0 @@
-# XeIvarion AI
-inteligencia artificial 
